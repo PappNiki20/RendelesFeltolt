@@ -7,3 +7,6 @@
 ![futas2](https://github.com/PappNiki20/RendelesFeltolt/assets/115682617/0ffdf276-6912-4afc-bbef-53d188f1ac93)
 ## Futás közben:
 ![futas3](https://github.com/PappNiki20/RendelesFeltolt/assets/115682617/0f07e9a1-08c8-4f5d-b53f-eb1964c18d2e)
+## Nyugta:
+
+![PappNikolettanyugta](https://github.com/PappNiki20/RendelesFeltolt/assets/115682617/15ca88f1-052a-4ecf-87be-e36af3033408)
